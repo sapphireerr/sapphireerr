@@ -4,7 +4,7 @@ u can call me sapphire!! she/her 16y.o
 
 c+h, may be afk!! always open to new friends
 
-strawpage::https://sapphirehiizhi.straw.page
+strawpage::https://sapphirehiizhi.straw.page  atabook::https://sapphire.atabook.org/
 
 _peter parker irl true_
 <img width="1000" height="400" alt="image" src="https://github.com/user-attachments/assets/34850d5a-5ba0-46ec-881a-407b90f8932e" />
